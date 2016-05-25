@@ -1,0 +1,1 @@
+Analyza-studenskych-projektu
